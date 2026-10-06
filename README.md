@@ -1,2 +1,2 @@
 # synchrone
-this is a repository for the synchrone project 
+this is a repository for the synchrone project Build it Yourselffff....!!><>< 
